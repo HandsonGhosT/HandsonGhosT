@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @HandsonGhosT
+- 👋 Hi, I’m Andrey from Colegio Maria Goretti number 2 from 1A
 - 👀 I’m interested in progams and games
 - 🌱 I’m currently learning about somenthings but not so intresting
 - 💞️ I’m looking to collaborate on help my friends and parents
